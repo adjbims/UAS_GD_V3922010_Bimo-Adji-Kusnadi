@@ -6,7 +6,8 @@
 
 </div>
 
-
+## File EXE
+https://drive.google.com/drive/folders/13nRNQfyTeiCtCGAXhGO-szjUD40vF_RF?usp=sharing
 
 ## :star2: About the Project
 Kelompok 3 - TI D - Kampus Keramat
